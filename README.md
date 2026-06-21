@@ -1,4 +1,5 @@
 
-<img width="736" height="1307" alt="Game of thrones wallpapers" src="https://github.com/user-attachments/assets/60945c05-2605-4147-b356-cf1654273238" />
+<img width="825" height="464" alt="image" src="https://github.com/user-attachments/assets/91420ea3-a8ee-4c9d-aae3-2bcc5a1f07a4" />
+
 
 A vivid explorer that is trying to find the right space
