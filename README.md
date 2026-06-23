@@ -1,4 +1,5 @@
-<img width="1920" height="1080" alt="rdr2" src="https://github.com/user-attachments/assets/15a52f8e-3dfb-488e-a729-302607c9ea80" />
+<img width="3840" height="2160" alt="El_PSY_CONGROO" src="https://github.com/user-attachments/assets/9a221a0b-0560-44f7-83a3-60a95548469a" />
+
 
 
 
