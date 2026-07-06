@@ -1,4 +1,4 @@
-<img width="3840" height="2160" alt="El_PSY_CONGROO" src="https://github.com/user-attachments/assets/9a221a0b-0560-44f7-83a3-60a95548469a" />
+<img width="1199" height="721" alt="lordofthemysteries3" src="https://github.com/user-attachments/assets/f34fd438-9391-4000-831e-b282ee58cfdd" />
 
 
 
