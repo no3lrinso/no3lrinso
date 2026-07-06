@@ -1,4 +1,4 @@
-<img width="1199" height="721" alt="lordofthemysteries3" src="https://github.com/user-attachments/assets/f34fd438-9391-4000-831e-b282ee58cfdd" />
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/b429427b-78d6-4a71-a8d6-cf1d883d8f0e" />
 
 
 
